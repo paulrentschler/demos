@@ -45,3 +45,8 @@ Details on individual files
 * storm-trooper -- https://www.flickr.com/photos/38451115@N04/4144213514
 * woman -- https://www.flickr.com/photos/jayburg/32689517821/
 
+
+## Signatures
+
+Signatures were all created as original art.
+
